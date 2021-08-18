@@ -7,6 +7,7 @@
 * 🎀 _i like coding, specifically in discord.js_
 * 💀 _learning v13 but it makes me wanna poo_ 
 * ☕ _started coding using Scratch back in 2018_
+* 🤠 [face reveal](https://www.youtube.com/watch?v=2xx_2XNxxfA)
 
 ###### _**credit to whoever made the dividers lul**_
 ![405056B8-F1ED-4325-B437-982BD9B3E0C7](https://user-images.githubusercontent.com/88029789/129837660-49111d3f-483e-4d2b-9efe-2702022e90ba.png)
